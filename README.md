@@ -9,9 +9,9 @@
 
 - 👯 I’m looking to collaborate on [Lejyon](https://lejyon.com.tr/)
 
-- 🤝 I’m looking for help with [Website sales](https://lejyon.com.tr/)
+- 🤝 I’m looking for help with [Website sales](https://muharremonel.com/)
 
-- 👨‍💻 All of my projects are available at [https://lejyon.com.tr/projeler](https://lejyon.com.tr/projeler)
+- 👨‍💻 All of my projects are available at [https://lejyon.com.tr/projeler](https://muharremonel.com)
 
 - 📝 I regularly write articles on [https://medium.com/@muharremonel0](https://medium.com/@muharremonel0)
 
